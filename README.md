@@ -1,4 +1,4 @@
-- 👋 EU E ELA ! @isisbruno
+- 👋 EU E ELe ! @andre pepa
 - 👀 16 anos 15 anos
 - 🌱 GOSTAMOS DE FESTA
 - 💞️ SOLTEIROS
